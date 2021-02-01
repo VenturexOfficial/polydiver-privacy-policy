@@ -1,1 +1,0 @@
-# polydiver-privacy-policy
